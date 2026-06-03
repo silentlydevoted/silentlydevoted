@@ -1,4 +1,5 @@
-## Hi there 👋
+## ╯｡ ✦ 
+<img width="300" height="168" alt="17804751940226764120328311658800" src="https://github.com/user-attachments/assets/e13761a4-c428-4496-b772-a6c0c32fe0bb" />
 
 <!--
 **silentlydevoted/silentlydevoted** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
