@@ -1,5 +1,6 @@
-## ╯｡ ✦ 
-<img width="900" height="540" alt="17804751940226764120328311658800" src="https://github.com/user-attachments/assets/e13761a4-c428-4496-b772-a6c0c32fe0bb" />
+## ╯｡ 
+<img width="736" height="414" alt="17847214515698271910180429004074" src="https://github.com/user-attachments/assets/d99830a9-871e-422f-9e41-fe560965f2c5" />
+
 「 a luna cara cantica, ne me in atra dedas』
 
 ![](https://komarev.com/ghpvc/?username=silentlydevoted&color=ff69b4)
